@@ -1,4 +1,6 @@
-# mapel--manchester-utd
-susah dikalahakan
-jangan menyerah
-pasti bisa
+#lawan king emyu
+man city
+liverpool
+arsenal
+chelshe
+
