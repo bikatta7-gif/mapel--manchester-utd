@@ -1,4 +1,4 @@
 # mapel--manchester-utd
 susah dikalahakan
-menang mah bebas
-king lolos ucl
+jangan menyerah
+pasti bisa
